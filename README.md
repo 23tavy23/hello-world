@@ -1,1 +1,1 @@
-afjsgjskgnkslgklskmblksgmslkmglgks
+inca o schimbare
